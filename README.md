@@ -34,7 +34,7 @@
 <br />
 【宁波锢实浸渗加工有限公司】<br />
 地址：宁波市北仑区大碶璎珞188号2幢1号 [点击查看工厂地址](https://ditu.amap.com/place/B0FFJYHCRA)<br />
-网址：[impregnation.github.io](https://impregnation.github.io/)<br />
+网址：[impregnation.top](https://impregnation.top)<br />
 邮编：315806<br />
 电话：18519195469<br />
 邮箱：[gsjsjg@wo.cn](mailto:gsjsjg@wo.cn) <br />
